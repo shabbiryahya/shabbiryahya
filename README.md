@@ -14,6 +14,10 @@
 
 - ⚡ Fun fact **I love MEMEs rather than other hobbies😂**
 
+- 👨‍💻 portfolio : [https://shabbir-yahya-portfolio.netlify.app/](https://shabbir-yahya-portfolio.netlify.app/)
+
+
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://twitter.com/ifsebyy" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="ifsebyy" height="30" width="40" /></a>

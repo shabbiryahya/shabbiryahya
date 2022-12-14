@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **shabbirkatlariwala@gmail.com**
 
-- ⚡ Fun fact **I love MEMEs rather than other hobbies😂**
+- ⏳ Don't waste your time or time will waste you! ☠️ One tends to consume time on low-return stuff, superficial entertainment. 📺 Things they don't actually want to do. One should make the most of his time. ⏱ Get busy living.
 
 - 👨‍💻 portfolio : [https://shabbir-yahya-portfolio.netlify.app/](https://shabbir-yahya-portfolio.netlify.app/)
 

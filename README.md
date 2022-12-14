@@ -12,10 +12,11 @@
 
 - 📫 How to reach me **shabbirkatlariwala@gmail.com**
 
+- 🙍 portfolio : [https://shabbir-yahya-portfolio.netlify.app/](https://shabbir-yahya-portfolio.netlify.app/)
+
 - ⏳ Don't waste your time or time will waste you! ☠️ One tends to consume time on low-return stuff, superficial entertainment. 📺 Things they don't actually want to do. One should make the most of his time. ⏱ Get busy living.
 
-- 👨‍💻 portfolio : [https://shabbir-yahya-portfolio.netlify.app/](https://shabbir-yahya-portfolio.netlify.app/)
-
+- 🎵 is Love, 🎤 is Energy, 👨‍💻 is dream. 
 
 
 <h3 align="left">Connect with me:</h3>
